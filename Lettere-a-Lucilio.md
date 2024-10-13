@@ -2,7 +2,7 @@
 
 ## L'uso del Tempo
 
-Nella Lettera 1, Seneca affronta il tema cruciale dell'uso del tempo, che considera il tesoro più prezioso a disposizione dell'uomo. Egli sottolinea l'importanza di gestirlo con saggezza, poiché la maggior parte delle persone lo spreca in attività futili o persino dannose, spesso senza rendersene conto.
+Nella Lettera 4, Seneca affronta il tema cruciale dell'uso del tempo, che considera il tesoro più prezioso a disposizione dell'uomo. Egli sottolinea l'importanza di gestirlo con saggezza, poiché la maggior parte delle persone lo spreca in attività futili o persino dannose, spesso senza rendersene conto.
 
 Seneca critica la superficialità con cui molti trascorrono le loro giornate e invita Lucilio a riflettere sulle proprie abitudini quotidiane. Il fulcro della sua riflessione è la distinzione tra vivere e semplicemente passare il tempo: vivere significa agire con consapevolezza e dare significato alle proprie azioni, mentre trascorrere il tempo è un'attività passiva e priva di scopo. Riflettere su come impieghiamo il nostro tempo, afferma Seneca, è fondamentale per migliorare la qualità della vita, poiché ci aiuta a riconoscere le priorità e a prendere decisioni più consapevoli.
 
